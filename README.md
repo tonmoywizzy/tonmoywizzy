@@ -1,1 +1,1 @@
-Video Games Programmer and Cyber Security Researcher 
+Cyber Security Researcher, Video Games Developer
